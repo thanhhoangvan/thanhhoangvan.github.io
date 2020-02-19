@@ -1,2 +1,2 @@
 # thanhhoangvan.github.io
-My blog
+My blog will be coming soon
